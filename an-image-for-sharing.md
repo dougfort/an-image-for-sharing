@@ -1,0 +1,9 @@
+# An Image for Sharing
+
+My favorite image for sharing centers on a quiet pool of water in the sunlight. The water is clear and transparent. At the bottom is fine, clean, light-colored sand. Around the pool is a group of quiet, comfortable people. Each has a collection of stones before her.
+
+The sharing can be likened to a time in which each person, in turn, carefully selects from his collection a single stone to throw into the water. The stone may be selected because it is similar to one that was thrown previously — or because it is very different, or because it complements another, or because it is the most beautiful in one's collection, or one's favorite, or because it is the one it's easiest to part with — or for some other reason. It is important, however, that one not choose for the occasion a large rock which will make too big a splash or take too much space. It is important, also, that one choose just a single stone and not a group or the entire collection.
+
+The occasion has a great sense of peace and leisure about it. We watch as each person slowly selects her stone and tosses it. As if in slow motion, we watch the stone leave the thrower's hand, arc through the sunlight and enter the water. We see the water splash up around it. The stone slowly sinks through the clear water, coming to rest on the sandy bottom. We watch the ripples spread out in widening concentric rings, lapping against the sides of the pool. Gradually they diminish in size and smooth away. Then the next person selects his stone.
+
+When the last ripple has died away, we may have a unique collection of individual stones in our pool. Or we may find that a pattern has emerged, independent of our plans or volition, which would not have arisen had we not come together in this way, or had someone been missing. We may find ourselves as deeply spoken to by this pattern as by individual contributions.
